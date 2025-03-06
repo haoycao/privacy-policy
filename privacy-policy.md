@@ -1,4 +1,4 @@
-# Privacy Policy for VoicePersonality
+# Privacy Policy for VMaxxx
 
 *Last Updated: 2025/03/04
 
